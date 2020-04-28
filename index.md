@@ -1,3 +1,0 @@
-## Apricot, LLC
-
-Welcome.
